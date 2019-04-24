@@ -1,0 +1,2 @@
+# AkhmadRouf-resolution
+Resolution
